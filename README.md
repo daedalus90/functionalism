@@ -35,7 +35,7 @@ The separation between each other, and the universe, is an illusion. Living a fu
 
 ### Functionalism
 So far, I’ve presented nothing particularly novel.
-Functionalism is not the above ideas in isolation. It is the combination of these aspirational ideas and the process of starting with a framework, then working backwards to find a belief system that will help you reach these ideas.
+Functionalism is not the above ideals in isolation. It is the combination of these aspirational states and the process of starting with a framework, then working backwards to find a belief system that will help you reach them.
 
 Functionalism is the realization that the human psyche doesn’t thrive with a worldview dominated by relativism. It’s not necessarily the rejection of relativism, but the acceptance of the fact that having a concrete belief system has a functional purpose.
 
