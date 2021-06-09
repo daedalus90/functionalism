@@ -2,7 +2,9 @@
 ## Functionalism: An Interface for Belief
 
 ### The River Bank
-Through the night I drifted in and out of sleep. The fever kept my stints of sleep short. I woke on a riverbank. The dry, rounded, cobble was warm against my back. Thick evergreen forests ran along  the river. Slightly up river bank was a dirt road, it led from the dark, and dense, forest downstream to an old single lane bridge which crossed the river upstream from where I lay. It was comfortable, but I knew I had to cross that bridge and continue up that forest road. 
+Through the night I drifted in and out of sleep. The fever kept my stints of sleep short.
+
+I slipped into sleep, and woke on a river bank. The dry, rounded, cobble was warm against my back. Thick evergreen forests ran along  the river. Slightly up river bank was a dirt road, it led from the dark, and dense, forest downstream to an old single lane bridge which crossed the river upstream from where I laid. It was comfortable, but I knew I had to cross that bridge and continue up that forest road. 
 
 It was all very Jungian, but when I woke up, Functionalism was top of mind, and it seemed time to cross that bridge.
 
