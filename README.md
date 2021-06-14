@@ -9,13 +9,13 @@ I slipped into sleep, and woke on a river bank. The dry, rounded, cobble was war
 It was all very Jungian, but when I woke up, Functionalism was top of mind, and it seemed time to cross that bridge.
 
 ### The Purpose of Life
-There’s a purpose to every life, but how can that be given the variety of experiences had by individuals throughout time and space? The Alaskan fisherman, the African child dying from malaria, the billionaire Russian oligarch, these lives are all equally purposeful.
+There’s a purpose to every life. The Alaskan fisherman, the African child dying from malaria, the billionaire Russian oligarch, these lives are all equally purposeful.
 
-Our elders have always lectured us, sharing knowledge from their experiences, yet for the most part we don’t heed their warnings. Only after experiencing things firsthand do, we truly understand, no amount of advice and secondhand knowledge can replace the simple act of living through it yourself.
+Our elders have always lectured us, sharing knowledge from their experiences, yet these learnings frequently fall off deaf ears. Only after experiencing something firsthand, do we truly understand. No amount of advice and secondhand knowledge can replace the simple act of living through something yourself.
 
 Experience is the only answer.
 
-The purpose of life is simply experiencing it. No experience is more valuable than another, and no two experiences are the same. To truly know itself, the Universe must experience itself as throughly as possible. Each experience brings the Universe closer to true understanding.
+The purpose of life is simply experiencing it. No experience is more valuable than another, and no two experiences are exactly the same. To truly know itself, the Universe must experience itself as throughly as possible. Each experience brings us closer to true understanding.
 
 ### The Trilogy
 While every experience has its purpose, there are steps we can take to minimize unnecessary pain and suffering. By focusing on these three central tenants, we can live a purposeful life, without senseless suffering.
