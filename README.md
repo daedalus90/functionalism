@@ -23,7 +23,7 @@ While every experience has its purpose, there are steps we can take to minimize 
 #### Separation from the ego
 An individual has no control over the time, place, or body they are born into. Despite this, we equate these things with self-worth. The individual is an illusion, a necessary and useful illusion, but in the end, we’re all one in the same.
 
-If we take two glasses: a priceless goblet, and an old jar, and scoop water from the ocean with each, then after some time has passed, return the water to the ocean, did the value of the water, or ocean, change?
+If we take two glasses: a priceless goblet, and an old jar, and scoop water from the ocean with each. Then after some time has passed, return the water to the ocean. Did the value of the water, or ocean, change?
 
 Don’t let the ego trick you into thinking it’s anything more than a vehicle, a tool, a means to an end, a way for the infinite to experience the finite.
 
