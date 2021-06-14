@@ -11,7 +11,7 @@ It was all very Jungian, but when I woke up, Functionalism was top of mind, and 
 ### The Purpose of Life
 There’s a purpose to every life. The Alaskan fisherman, the African child dying from malaria, the billionaire Russian oligarch, these lives are all equally purposeful.
 
-Our elders have always lectured us, sharing knowledge from their experiences, yet these learnings frequently fall off deaf ears. Only after experiencing something firsthand, do we truly understand. No amount of advice and secondhand knowledge can replace the simple act of living through something yourself.
+Our elders have always lectured us, sharing knowledge from their experiences, yet these learnings frequently fall on deaf ears. Only after experiencing something firsthand, do we truly understand. No amount of advice and secondhand knowledge can replace the simple act of living through something yourself.
 
 Experience is the only answer.
 
