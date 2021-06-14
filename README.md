@@ -28,7 +28,7 @@ If we take two glasses: a priceless goblet, and an old jar, and scoop water from
 Don’t let the ego trick you into thinking it’s anything more than a vehicle, a tool, a means to an end, a way for the infinite to experience the finite.
 
 #### Experincing The Individual
-We’re here for a reason; here to have completely unique experiences. No novel experience is more valuable than another, but there’s no need to have experiences and learn lessons we’ve already learned, especially those which are painful. An fulfilling life can be lived through maximizing personal growth, while minimizing suffering. Some lessons are can only be written in blood, but if the same can be written in ink, blood is better saved.
+We’re here for a reason; here to have completely unique experiences. No novel experience is more valuable than another, but there’s no need to have experiences and learn lessons we’ve already learned, especially those which are painful. A fulfilling life can be lived through maximizing personal growth, while minimizing suffering. Some lessons can only be written in blood, but if the same can be written in ink, blood is better saved.
 
 #### Enabling Others
 The separation between each other, and the universe, is an illusion. Living a fulfilling life benefits us all, and enabling others benefits you. When you limit others, you limit yourself. We all need the freedom, and opportunity to live, die, help, hurt, succeed, and make mistakes; the society we build should reflect this. 
